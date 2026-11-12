@@ -1,3 +1,6 @@
-sup. all wip , 
+sup. all wip ,
 
-sign my ata?  -->  [♡](https://silenceisnthere.atabook.org/)
+call me Xxe \ Commander \ Jamato
+
+sign my ata?  -->  [atabook](https://silenceisnthere.atabook.org/)
+[prns,cc](https://pronouns.cc/@JamatoPs)
