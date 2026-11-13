@@ -1,6 +1,5 @@
 sup. all wip ,
 
-call me Xxe \ Commander \ Jamato
+call me Xxe \ Commander
 
-sign my ata?  -->  [atabook](https://silenceisnthere.atabook.org/)
-[prns,cc](https://pronouns.cc/@JamatoPs)
+sign ata
