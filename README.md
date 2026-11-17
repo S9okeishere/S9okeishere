@@ -12,7 +12,8 @@
 ㅤ
 
 | :----------: |
-| <details><summary><b><img width="20" height="20" alt="null" src="https://files.catbox.moe/w9t3z6.gif" /></b></summary><br>()  | 
-| <details><summary><b><img width="20" height="20" alt="null" src="https://files.catbox.moe/s72dia.gif" /></b></summary><br> wifies and parrotx2 heavy fictkins, doubles extreme iwec|
+| <details><summary><b><img width="20" height="20" alt="null" src="" /></b></summary><br>()  | 
+| <details><summary><b><img width="20" height="20" alt="null" src="" /></b></summary><br> texttt|
 
 <img width="800" height="450" alt="Image" src="" />
+
