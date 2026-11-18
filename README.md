@@ -7,7 +7,7 @@ Commander_  /  Xxe  /  Wien
   <p align="center">
 ۪     ㅤ 𓏼‿ㅤ  ˖  ㅤㅤ᠃ㅤㅤ  ꒰𑁬  ݂ ໒꒱༷
     <p align="center">
-   ◟⌣ ͜‎ ̣̣   (16)ㅤ𝗠𝗂𝗻𝗈𝗿+   ˖   ` 𝗧rans𝑔enderㅤ𓏼ㅤ𝗩oid𝑔enderㅤ𓏼ㅤ𝗡o 𝑫𝑵𝑰 `   ✟
+   ◟⌣ ͜‎ ̣̣   (16)ㅤ𝗠𝗂𝗻𝗈𝗿+   ˖   ` 𝗧rans𝑔enderㅤ𓏼ㅤ𝗩oid𝑔enderㅤ𓏼ㅤ𝗡o 𝑫𝑵𝑰 ! `   ✟
       <p align="center">
         (,⑉ｰ . ｰ⑉) <a href="">@</a>ㅤ﹟ㅤ<a href="">@</a> ꒰ᐢ⸝⸝⸝⸝⸝ᐢ꒱⸒⸒ㅤ𝗞𝗒𝗎𝗍e .
           <p align="center">
