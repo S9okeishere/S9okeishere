@@ -9,7 +9,7 @@ Commander_  /  Xxe  /  Wien
     <p align="center">
    ◟⌣ ͜‎ ̣̣   (16)ㅤ𝗠𝗂𝗻𝗈𝗿+   ˖   ` 𝗧rans𝑔enderㅤ𓏼ㅤ𝗩oid𝑔enderㅤ𓏼ㅤ𝗡o 𝑫𝑵𝑰 `   ✟
       <p align="center">
-        (,⑉ｰ . ｰ⑉) <a href="https://github.com/rowwannie">@roryy</a>ㅤ﹟ㅤ<a href="https://github.com/eternityleaf">@nillyy</a> ꒰ᐢ⸝⸝⸝⸝⸝ᐢ꒱⸒⸒ㅤ𝗞𝗒𝗎𝗍𝗂𝖾𝗌 .
+        (,⑉ｰ . ｰ⑉) <a href="">@</a>ㅤ﹟ㅤ<a href="">@</a> ꒰ᐢ⸝⸝⸝⸝⸝ᐢ꒱⸒⸒ㅤ𝗞𝗒𝗎𝗍e .
           <p align="center">
   .     ˖      ｡     𓐇   .
 <
