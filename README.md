@@ -25,3 +25,9 @@
 [](https://github.com/)[](https://github.com/) [](https://github.com/) [](https://github.com/) [](https://github.com/)  [](https://github.com/)  [](https://github.com/) [](https://github.com/) [](https://github.com/) [](https://github.com/) [](https://github.com/)  [](https://github.com/)  [](https://github.com/) [](https://github.com/) [](https://github.com/) [](https://github.com/) [](https://github.com/)  [](https://github.com/) [](https://github.com/)[](https://github.com/) [](https://github.com/) [](https://github.com/) [](https://github.com/)  [](https://github.com/) [](https://github.com/)[](https://github.com/) [](https://github.com/) [](https://github.com/) [](https://github.com/)  [](https://github.com/) [](https://github.com/)[](https://github.com/) [](https://github.com/) [](https://github.com/) [](https://github.com/)  [](https://github.com/)
 
 
+   
+   <img width="2048" height="1536" alt="null" src="https://github.com/S9okeishere/S9okeishere/blob/67a5a22284c963a32f3a62c5007dad0c704bacf0/Untitled136_20261120141831.png" />
+
+
+
+   ts image looks better in white mode
