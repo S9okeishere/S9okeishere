@@ -15,8 +15,12 @@
 <
 ¼
 
-
-
+ <div align='center'>
+ <details>
+  <summary>
+  
+ </summary>
+ oomf`s !
 
 
 
