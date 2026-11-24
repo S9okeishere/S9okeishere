@@ -1,5 +1,5 @@
-
-  [![Hits](https://hits.sh/github.com/S9okeishere.svg?style=plastic&label=Nulls&extraCount=3000&color=0c0b0e&labelColor=09050d&logo=slug)](https://hits.sh/github.com/S9okeishere/)
+⚡︎
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  [![Hits](https://hits.sh/github.com/S9okeishere.svg?style=plastic&label=Nulls&extraCount=3000&color=0c0b0e&labelColor=09050d&logo=slug)](https://hits.sh/github.com/S9okeishere/)
 
 <p align="center"> 
   𓐇 𝗫𝑥𝓮ㅤ—ㅤ𝗪𝒾𝑒𝓷 . \ 𝗖𝑜𝗺𝗺𝑎𝓷𝒹𝑒𝓇_
@@ -9,7 +9,7 @@
     <p align="center">
    ◟⌣ ͜‎ ̣̣   𓐇(16)ㅤ𝗠𝗂𝗻𝗈𝗿+   ˖   ` 𝗧rans𝑔enderㅤ𓏼ㅤ𝗩oid𝑔enderㅤ𓏼ㅤ` 𓐇 𝙲+𝗵 𝒂𝙡𝘄𝒂𝘆𝓼 .ㅤwip  𝚁𝒆𝓷𝘁𝙧𝔂` ! `   ✟
       <p align="center">
-        (,⑉ｰ . ｰ⑉) <a href="https://silenceisnthere.atabook.org">新𝓽𝗯𝓸𝓸𝗸ㅤ𓏼ㅤ✧</a>ㅤ﹟ㅤ<a href="https://commmanderz.straw.page/">@𝗦𝒕𝚛𝒂𝗐</a>ㅤ﹟ㅤ<a  href="https://guns.lol/commanderrs">𝐆𝒖𝐧𝘴.𝐥𝘰𝐥ㅤ𓏼ㅤ✧</a> <a href="">@𝚁𝒆𝓷𝘁𝙧𝔂 wip </a> ꒰ᐢ⸝⸝⸝⸝⸝ᐢ꒱⸒⸒ㅤ𝗞awaii .
+        (,⑉ｰ . ｰ⑉) <a href="https://silenceisnthere.atabook.org">新𝓽𝗯𝓸𝓸𝗸ㅤ𓏼ㅤ✧</a>ㅤ﹟ㅤ<a href="https://commmanderz.straw.page/">@𝗦𝒕𝚛𝒂𝗐</a>ㅤ﹟ㅤ<a  href="https://guns.lol/commanderrs">𝐆𝒖𝐧𝘴.𝐥𝘰𝐥ㅤ𓏼ㅤ✧</a> ㅤ﹟ㅤ<a href="">@𝚁𝒆𝓷𝘁𝙧𝔂 wip </a> ꒰ᐢ⸝⸝⸝⸝⸝ᐢ꒱⸒⸒ㅤ𝗞awaii .
           <p align="center">
   .     ˖      ｡     𓐇   .
 <
